@@ -3,4 +3,4 @@ The name is Alex, although I'm referred to as 'Chreal' online 99% of the time. I
 
 If you want to contact me, messaging me via Discord @Chreal is the best way
 
-If a had a website, this is where I would put it (here, but alas no website)
+If I had a website, this is where I would put it (here, but alas no website)
